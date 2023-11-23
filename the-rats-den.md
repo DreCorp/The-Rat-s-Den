@@ -5,4 +5,4 @@
 - Respect others.
 - Listen to admins.
 - Have Fun!
-# Join Discord :  https://discord.gg/ZFZW45mhJ9
+# Join [Discord](https://discord.com/invite/ZFZW45mhJ9 "Server!!!").
