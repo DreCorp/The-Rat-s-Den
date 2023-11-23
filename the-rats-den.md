@@ -8,3 +8,5 @@
 
 <a id="Join Discord!">https://discord.gg/ZFZW45mhJ9</>
 
+![You are a rat.](https://github.com/DreCorp/The-Rat-s-Den/blob/main/bg1.png?raw=true)
+
