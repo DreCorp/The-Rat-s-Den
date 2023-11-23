@@ -9,5 +9,4 @@
 
 
 
-
-<a id="https://discord.gg/ZFZW45mhJ9">
+<a id="Join Discord Server!">https://discord.gg/ZFZW45mhJ9</>
