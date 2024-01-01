@@ -3,5 +3,4 @@
 ## Rules:
 
 - Respect others.
-- Listen to admins.
 - Have Fun!
